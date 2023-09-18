@@ -16,5 +16,6 @@
 ⁣⁣
 
 📨 If you have any positions open or want to chat about science, feel free to connect and contact me! mramiropareta@gmail.com
+
 You can also find me in: https://www.linkedin.com/in/mramiropareta/
 
